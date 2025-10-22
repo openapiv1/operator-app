@@ -1,1 +1,8 @@
 # operator-app
+
+
+
+#**WAZNE!!!!!*+#
+
+KOD APLIKACJI ZNAJDUJE SIE W FOLDERZE OPERATOR
+
